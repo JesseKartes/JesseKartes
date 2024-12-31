@@ -23,6 +23,7 @@ Welcome to my GitHub profile! I’m passionate about data analysis, sports proje
 Feel free to reach out for collaborations on any sports-related tools!
 
 📫 Email: jesse.kartes@gmail.com
+
 🔗 [LinkedIn](https://www.linkedin.com/in/jessekartes/) | Twitter |
 
 
