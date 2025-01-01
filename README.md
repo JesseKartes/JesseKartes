@@ -24,7 +24,7 @@ Feel free to reach out for collaborations on any sports-related tools!
 
 📫 Email: jesse.kartes@gmail.com
 
-🔗 [LinkedIn](https://www.linkedin.com/in/jessekartes/) | Twitter |
+🔗 [LinkedIn](https://www.linkedin.com/in/jessekartes/) | [X](https://x.com/jesse_kartes)
 
 
 
